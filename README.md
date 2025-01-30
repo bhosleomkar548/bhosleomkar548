@@ -10,4 +10,4 @@ Outside of my academic pursuits, I'm actively engaged with courses like 100 Days
 I'm here on GitHub to connect with fellow enthusiasts, mentors, and professionals in the field of Big Data. Let's connect and explore opportunities to learn from each other, collaborate on projects, or discuss industry insights. Feel free to reach out—I'm always open to new connections and enriching conversations!
 
 ## My Contact info : 9892240557
-## Linkdin : www.linkedin.com/in/omkar-bhosle-0a8a13190
+## Linkdin : www.linkedin.com/in/omkarbhosle99
